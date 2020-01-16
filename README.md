@@ -4,3 +4,5 @@ March 27
 What is your favorite food?
 pizza
 how many siblings do you have?
+one sister seven brothers
+What are your hobbies?
