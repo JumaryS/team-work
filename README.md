@@ -15,3 +15,4 @@ what's your favorite color?
 orange. Collins going to make us present. Maybe if we look uninteresting he'll miss us.  
 we can only hope, fingers crossed haha.
 oh man get ready to go up first.
+haha you were wrong, wanna go up next? 
