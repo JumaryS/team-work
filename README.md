@@ -18,4 +18,5 @@ oh man get ready to go up first.
 haha you were wrong, wanna go up next? 
 IDK  when i get nervous I tend to tell pun jokes like what do you call a bear with no teeth.
 hmm, i'm not sure, what DO you call a bear with no teeth?
-a gummy bear
+a gummy bear 
+that pun was almost unBEARable  
