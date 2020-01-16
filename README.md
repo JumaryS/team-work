@@ -6,3 +6,5 @@ pizza
 how many siblings do you have?
 one sister seven brothers
 What are your hobbies?
+I like to explore, take pictures of art and go to shows
+do you have any pets?
